@@ -12,4 +12,6 @@
 
 ![filetype-html](https://github.com/Lalitha567/My_Portfolio/assets/101200348/6fbb8fce-f3d5-494a-b066-3ad25d50dbbb)
 
+![facebook](https://github.com/Lalitha567/My_Portfolio/assets/101200348/e00f7a7a-e57e-49f8-8c1e-4401d07919b0)
+
 
