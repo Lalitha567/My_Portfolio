@@ -6,3 +6,5 @@
 
 
 ![passportPicture](https://github.com/Lalitha567/My_Portfolio/assets/101200348/8eb54ac8-db52-4a01-a703-4e390450a63d)
+
+![card-1](https://github.com/Lalitha567/My_Portfolio/assets/101200348/693479e9-b3e3-4930-81be-0e7337924ecd)
