@@ -5,3 +5,4 @@
 ![bannerimage](https://github.com/Lalitha567/My_Portfolio/assets/101200348/03ed2861-fc3b-4676-8be8-70a6ac9834a1)
 
 
+![passportPicture](https://github.com/Lalitha567/My_Portfolio/assets/101200348/8eb54ac8-db52-4a01-a703-4e390450a63d)
